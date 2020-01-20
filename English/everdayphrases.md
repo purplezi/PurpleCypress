@@ -14,3 +14,4 @@ benefit from cooperation and lose from confrontation
 pick holes in sth.
 take a back seat
 have a `penetrating` analysis of this issue
+in the long run
