@@ -13,3 +13,8 @@ Joy in looking and comprehending is nature's most beautiful gift.
 
 We are all in the gutter,but some of us are looking at the stars.
 
+No one has a good enough memory to be a successful liar.
+
+Yesterday is not ours to recover,but tomorrow is ours to win or lose.
+
+Freedom is nothing but a chance to be better.
