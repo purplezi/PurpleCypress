@@ -18,3 +18,7 @@ No one has a good enough memory to be a successful liar.
 Yesterday is not ours to recover,but tomorrow is ours to win or lose.
 
 Freedom is nothing but a chance to be better.
+
+Energy and persistence conquer all things.
+
+Cease to struggle and you cease to live.
