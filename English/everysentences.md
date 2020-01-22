@@ -1,7 +1,4 @@
 #### 2020 week3
-Competitions between individuals and groups are inevitable in a world of limited resources.
-
-I base this conclusion not on any individual study,but on large-scale and systematic reviews of thousands of studies.
 
 One may be poor but never ceases to be ambitious.
 
@@ -22,3 +19,5 @@ Freedom is nothing but a chance to be better.
 Energy and persistence conquer all things.
 
 Cease to struggle and you cease to live.
+
+Actions speak louder than words.
