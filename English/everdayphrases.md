@@ -12,8 +12,13 @@ wait on hand and foot
 run the risk of doing sth
 benefit from cooperation and lose from confrontation
 pick holes in sth.
-take a back seat
+take a back seat <- admit to fall behind
 have a `penetrating` analysis of this issue
 in the long run
 beat one's brains out
 (sth)be hair-raising
+(sb)be super fired up(excited)
+despite the choppy seas and overcast skies
+(sth)slam in pieces 
+clip one's wings <- limit onr's powers
+be working `around the clock` on
