@@ -20,5 +20,5 @@ beat one's brains out
 (sb)be super fired up(excited)
 despite the choppy seas and overcast skies
 (sth)slam in pieces 
-clip one's wings <- limit onr's powers
+clip one's wings <- limit one's powers
 be working `around the clock` on
