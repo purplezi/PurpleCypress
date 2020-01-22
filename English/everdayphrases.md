@@ -16,3 +16,4 @@ take a back seat
 have a `penetrating` analysis of this issue
 in the long run
 beat one's brains out
+(sth)be hair-raising
