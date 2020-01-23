@@ -22,3 +22,5 @@ despite the choppy seas and overcast skies
 (sth)slam in pieces 
 clip one's wings <- limit one's powers
 be working `around the clock` on
+plump for <- choose carefully/vote for
+bear fruit <- (plan)work/come into effect

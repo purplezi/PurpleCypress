@@ -21,3 +21,5 @@ Energy and persistence conquer all things.
 Cease to struggle and you cease to live.
 
 Actions speak louder than words.
+
+Knowing something of everything and everything of something.
