@@ -8,6 +8,8 @@
 
 ## 5.Parellelism
 
+With the rapid development of economy,the remarkable improvement/steady growth of people's living standard
+
 ## 6.There/It
 
 ## 7.Inversion
