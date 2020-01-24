@@ -8,7 +8,7 @@
 
 ## 5.Parellelism
 
-With the rapid development of economy,the remarkable improvement/steady growth of people's living standard
+With the rapid development of economy,the remarkable improvement/steady growth of people's living standard,...
 
 ## 6.There/It
 
@@ -17,3 +17,5 @@ With the rapid development of economy,the remarkable improvement/steady growth o
 ## 8.Virtual
 
 ## 9.Imperative/Plaint
+
+May all the regrets of last year pave the way for this year's surprise!
