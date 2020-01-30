@@ -8,9 +8,13 @@
 
 ## 5.Parellelism
 
-With the rapid development of economy,the remarkable improvement/steady growth of people's living standard,...
+With the rapid development of economy,the remarkable improvement of technological level,steady growth of people's living standard,...
 
 ## 6.There/It
+
+It is universally acknowledged that ...
+
+It is undeniable that.../There is no denying that...
 
 ## 7.Inversion
 
@@ -18,4 +22,4 @@ With the rapid development of economy,the remarkable improvement/steady growth o
 
 ## 9.Imperative/Plaint
 
-May all the regrets of last year pave the way for this year's surprise!
+May all the regrets of last year pave the way for this year's surprise! 
