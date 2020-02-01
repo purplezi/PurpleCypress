@@ -23,3 +23,5 @@ Cease to struggle and you cease to live.
 Actions speak louder than words.
 
 Knowing something of everything and everything of something.
+
+One day,in retrospect,the years of struggle will strike you as the most beautiful.
