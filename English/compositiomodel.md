@@ -19,6 +19,8 @@ Though this drawing is a little exaggerating,it is not rare for us to find in...
 
 ## 4.DualCharacter
 
+God will not look you over for medals,but for scars.
+
 ## 5.Parellelism
 
 With the rapid development of economy,the remarkable improvement of technological level,steady growth of people's living standard,...
@@ -32,6 +34,8 @@ It is undeniable that.../There is no denying that...
 
 It is inevitable/inescapabke/unavoidable that...
 (The inevitable/inescapable fact is that...)
+
+There is anecdotal evidence that...(据传闻)
 
 ## 7.Inversion
 
