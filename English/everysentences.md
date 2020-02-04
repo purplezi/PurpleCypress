@@ -1,5 +1,3 @@
-#### 2020 week3
-
 One may be poor but never ceases to be ambitious.
 
 To do a common thing uncommonly well brings success.

@@ -25,3 +25,17 @@ be working `around the clock` on
 plump for <- choose carefully/vote for
 bear fruit <- (plan)work/come into effect
 deploy one's talents in this position
+
+#### 2020 week5
+a controversial issue
+reach an absolute consensus on...
+be indispenable to...
+the advantages far outweigh the disadvantages
+from another perspective
+make joint efforts
+beyond reproach/blameless
+unshakable duty
+satisfy/meet the needs of...
+in all aspects of human life
+be enviromentally friendly
+the ever-accerlerated updating of socience and technology
