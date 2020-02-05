@@ -39,3 +39,5 @@ satisfy/meet the needs of...
 in all aspects of human life
 be enviromentally friendly
 the ever-accerlerated updating of socience and technology
+scheme against each other(钩心斗角)
+the best remedy for sth.(be beyond remedy无可救药)
