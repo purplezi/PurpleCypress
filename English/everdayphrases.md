@@ -42,3 +42,5 @@ the ever-accerlerated updating of socience and technology
 scheme against each other(钩心斗角)
 the best remedy for sth.(be beyond remedy无可救药)
 worm one's way into one's confidence(渐渐赢取某人信任)
+in the bluster and busyness of life
+be hidden in plain sight(司空见惯)
