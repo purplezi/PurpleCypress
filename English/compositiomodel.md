@@ -57,14 +57,20 @@ It is undeniable that.../There is no denying that...
 It is inevitable/inescapabke/unavoidable that...
 (The inevitable/inescapable fact is that...)
 
+It can seem tasteless,misleading or counterproductive to hail progress when there is still so much wrong with the world.
+
 There is anecdotal evidence that...(据传闻)
 There was a time when it saturated the evening news and the morning papers that... 
+
+
 
 ## 7.Inversion
 
 If we let this situation of continues,not only does it ...,but also...
 
-## 8.Virtual
+## 8.Virtual/Denying
+
+Few forces change the world so much as education and the empowerment of women.
 
 ## 9.Imperative/Plaint
 
