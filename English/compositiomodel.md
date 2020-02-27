@@ -43,6 +43,8 @@ be faced with new opportunities and challenges
 
 God will not look you over for medals,but for scars.
 
+Sth. has changed the way our society develops,but its bright side should not keep us from following closely its dark side.
+
 ## 5.Parellelism
 
 With the rapid development of economy,the remarkable improvement of technological level,steady growth of people's living standard,...
@@ -71,6 +73,8 @@ If we let this situation of continues,not only does it ...,but also...
 ## 8.Virtual/Denying
 
 Few forces change the world so much as education and the empowerment of women.
+
+be second to none/nothing(无与伦比)
 
 ## 9.Imperative/Plaint
 
