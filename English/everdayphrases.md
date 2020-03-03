@@ -47,7 +47,8 @@ be hidden in plain sight(司空见惯)
 the critique of the lameness of sth is spot-on:
 demonstrate a seriously flawed understanding of sth.
 
-#### 2020 week8
+#### 2020 week9
 be the yellow brick road to sth.(康庄大道).
 embark on sth.=set about doing sth.=buckle down to sth.
 live up to one's expectations(beyond expectation)
+in one ear and out the other 
