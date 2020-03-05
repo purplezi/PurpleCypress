@@ -52,3 +52,5 @@ be the yellow brick road to sth.(康庄大道).
 embark on sth.=set about doing sth.=buckle down to sth.
 live up to one's expectations(beyond expectation)
 in one ear and out the other 
+cling to life so fierecely
+earn loads of critical praise while also grossing a bundle at the box office 

@@ -30,6 +30,7 @@ Though this drawing is a little exaggerating,it is not rare for us to find in...
 (sb.)be committed/devoted to...
 
 Though the government has already taken pains to implement regulations,it still fails to...
+...,which was what mattered 
 
 ## 3.Drawconclusion
 
@@ -69,6 +70,8 @@ There was a time when it saturated the evening news and the morning papers that.
 ## 7.Inversion
 
 If we let this situation of continues,not only does it ...,but also...
+
+In fact,had Disney not purchased the studio,Fox wa planning to follow Logan with additional X-Men spinoffs that spannned a variety of genres and tones,staring with Josh Boonez's horrorstyle The New Mutants.
 
 ## 8.Virtual/Denying
 
