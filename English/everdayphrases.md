@@ -54,3 +54,9 @@ live up to one's expectations(beyond expectation)
 in one ear and out the other 
 cling to life so fierecely
 earn loads of critical praise while also grossing a bundle at the box office 
+be emblematic of sth.
+law enforcement agencies(执法部门)
+be brought to justice(绳之以法)
+reform/rehabilitate criminals(改造罪犯)
+abide by/comply with the law(law-abiding citizens)
+first-time offenders/hardened offenders(初犯/惯犯)
