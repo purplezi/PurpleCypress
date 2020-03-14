@@ -73,6 +73,8 @@ If we let this situation of continues,not only does it ...,but also...
 
 In fact,had Disney not purchased the studio,Fox wa planning to follow Logan with additional X-Men spinoffs that spannned a variety of genres and tones,staring with Josh Boonez's horrorstyle The New Mutants.
 
+Not all encounters between our species were peaceful or pretty,but neither were they entirely violent.
+
 ## 8.Virtual/Denying
 
 Few forces change the world so much as education and the empowerment of women.

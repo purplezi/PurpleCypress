@@ -47,7 +47,7 @@ be hidden in plain sight(司空见惯)
 the critique of the lameness of sth is spot-on:
 demonstrate a seriously flawed understanding of sth.
 
-#### 2020 week9
+#### 2020 week10
 be the yellow brick road to sth.(康庄大道).
 embark on sth.=set about doing sth.=buckle down to sth.
 live up to one's expectations(beyond expectation)
@@ -60,3 +60,7 @@ be brought to justice(绳之以法)
 reform/rehabilitate criminals(改造罪犯)
 abide by/comply with the law(law-abiding citizens)
 first-time offenders/hardened offenders(初犯/惯犯)
+boost the sense of safety
+reinforce the police force and increase patrol
+deterrent effect(震慑作用)
+alert people to the risk of being victimized by crime
