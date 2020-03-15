@@ -29,3 +29,5 @@ All that you do,do with your might.
 Progress is the activity of today and the assurance of tomorrow.
 
 We've dominated the planet only because an unparalleled ability to care for one another-for partners,children,families,friends,fellow humans-allowed cooperation on a scale never before seen in the history of life.
+
+Get up early.Grind out hardy.Gain on success.
