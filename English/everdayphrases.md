@@ -66,3 +66,4 @@ deterrent effect(震慑作用)
 alert people to the risk of being victimized by crime
 The pill is particularly bitter to swallow givev...(鉴于...举步维艰)
 (government\enterprise)resort to ...tricks\measures\policies...
+ 
