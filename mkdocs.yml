@@ -1,0 +1,6 @@
+site_name: PurpleCypress
+
+repo_name: 'BUGwildfarmer/PurpleCypress'
+
+nav: 
+  - 首页: index.md
