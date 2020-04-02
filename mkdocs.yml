@@ -8,6 +8,8 @@ nav:
       - Composition Model: English/compositiomodel.md
       - Everday Phrases: English/everdayphrases.md
       - Every Sentences: English/everysentences.md
+  - ACM:
+      - infercheck: ACM/infercheck/infercheck.md
 
 ## Theme
 theme:
