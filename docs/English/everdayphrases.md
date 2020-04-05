@@ -68,3 +68,7 @@ The pill is particularly bitter to swallow givev...(鉴于...举步维艰)
 (government\enterprise)resort to ...tricks\measures\policies...
 get priority back to front(本末倒置)
 cutting-edge technology
+- sth. is not all it's cracked up to be.(没有所说那样)
+- take oneself off the hook(推卸责任)
+- confront one's flaws head on
+- alter ego(至交)
